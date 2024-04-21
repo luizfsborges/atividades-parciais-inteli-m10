@@ -1,0 +1,1 @@
+# atividades-parciais-inteli-m10
